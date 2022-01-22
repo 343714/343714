@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @343714
+- 👀 I’m interested in coding and other arts :)
+- 🌱 I’m currently learning about robotics in an introductory course, so please be kind!
+- 💞️ I’m looking to collaborate on something im passionate about when I get a better hang of how this works.
+- 📫 How to reach me - you don't lol
